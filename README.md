@@ -12,4 +12,4 @@ Okay you are going to first have to delete System32 from your computer as it pre
 
 ### I WANT TO LEAVE GOOD REVIEW HOW DO I???
 
-Okay first you are going to need to give me your credit card number that will be a good review also don't forgot the expiration date on the front and the special little numbers on the back of your card
+Okay first you are going to need to give me your credit card number that will be a good review also don't forgot the expiration date on the front and the special little numbers on the back of your card please
